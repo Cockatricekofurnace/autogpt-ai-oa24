@@ -1,4 +1,4 @@
-# 
+# Mejor AutoGPT extensiones. Con gestión de memoria y sistema de complementos — optimizado para el máximo rendimiento y eficiencia.
 
 
 
